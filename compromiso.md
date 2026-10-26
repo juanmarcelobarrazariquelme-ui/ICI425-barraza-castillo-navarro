@@ -1,0 +1,1 @@
+Yo, Damian Elias Navarro Contreras, usuario de GitHub Daelnaco, declaro haber leído y comprendido íntegramente el enunciado del Certamen II, incluidas las secciones "Política de uso de IA y código externo" y "Control de versiones y trazabilidad", y acepto las condiciones de evaluación allí descritas.
